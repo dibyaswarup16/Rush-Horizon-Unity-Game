@@ -40,3 +40,9 @@ YouTube: https://youtube.com/@XyberGamming
 ## License
 
 This project is shared for portfolio and educational purposes.
+## DOWNLOAD LINK FROM Itch.io
+
+
+https://xybergamming.itch.io/rush-horizon
+
+
